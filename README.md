@@ -9,4 +9,4 @@ Gutiérrez Cruz, Ángel de Jesús
 
 Sosa Figueroa, Benjamin de Jesús
 
-Morales Vazquez Juan Diego
+Morales Vázquez, Juan Diego
